@@ -1,0 +1,1 @@
+# Grupo-3-_-Introducao_a_Ondulatoria-_IA_Educacao_2025
